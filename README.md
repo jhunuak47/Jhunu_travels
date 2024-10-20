@@ -1,2 +1,2 @@
 # Jhunu_travels
-my fisrt website when i'm child.. somthong around 13
+my first website when i was kid.. some where around 13
